@@ -1,0 +1,5 @@
+# yardımcı
+BU TOOL BLİNK CURSOR COMPANY TARAFINDAN YAPILMIŞTIR!
+WEB SİTESİ : blinkcursor.org
+
+EMRE ASLAN 
